@@ -19,7 +19,7 @@ Alight Motion has become one of the most sought-after apps for Android users due
 <br>
 1. <strong>User-friendly Interface:</strong> Alight Motion is designed with simplicity in mind, making it easy for anyone to navigate and use, even if you’re not tech-savvy.
 <br>
-2. <strong>Regular Updates:</strong> By downloading the latest version, you can enjoy all the latest features and improvements that Alight Motion has to offer.
+2. <strong>Regular Updates:</strong> By downloading the latest version, you can enjoy all the latest features and improvements that <a href="https://motionalightapk.com/">Alight Motion!</a> has to offer.
 <br>
 3. <strong>Enhanced Security:</strong> This APK is free from any malware or harmful scripts, ensuring your device remains protected.
 <br>
